@@ -1,2 +1,2 @@
 # DOMINGUEZ_BUILDTECHPLAY-
-Computer building shop
+Computer specs shop
